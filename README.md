@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 I am actively involved in several projects that leverage AI to solve real-world problems. While I can't share the specifics just yet, I'm excited about the potential impact these initiatives can have. Stay tuned for more updates!<br>My ultimate goal is to make a significant contribution to the field of AI, whether through groundbreaking research, impactful projects, or innovative startups. I am always looking for opportunities to learn, grow, and make a difference.<br>Feel free to reach out if you'd like to collaborate on a project, discuss AI, or just connect!<br><br>
 
 
